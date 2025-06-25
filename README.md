@@ -15,9 +15,13 @@ Welcome to the digital workshop of [Luis’s Locker](https://luisslocker.com) �
 
 ## 🔥 Latest Releases
 
-- [Blue Eyes White Dragon Shorts](https://luisslocker.com/products/blue-eyes-white-dragon-shorts)  
-- [Tiger Cherry Oversized Tee](https://luisslocker.com/products/tiger-cherry-oversized-shirt)  
-- [Gothic Black Heavy Shorts](https://luisslocker.com/products/gothic-black-heavy-shorts)  
+### 🔥 Latest Drops
+
+- [Blue Eyes White Dragon Leg Day Shorts](https://luisslocker.com/products/blue-eyes-white-dragon-leg-day-shorts)  
+- [Tiger Cherry Oversized Faded T-Shirt](https://luisslocker.com/products/tiger-cherry-oversized-faded-t-shirt)  
+- [Luis’s Gothic Wave Black Shorts](https://luisslocker.com/products/luis-s-gothic-wave-black-shorts)
+
+🛒 Full collection: [luisslocker.com](https://luisslocker.com)  
 
 Check the full lineup: [https://luisslocker.com](https://luisslocker.com)
 
